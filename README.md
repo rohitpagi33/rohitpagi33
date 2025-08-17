@@ -51,7 +51,7 @@
 ## 🤝 Let’s Connect
 
 - 💼 LinkedIn: [rohit-pagi](https://www.linkedin.com/in/rohit-pagi/)
-- 📬 Email: rohitpagi33@example.com
+- 📬 Email: merohitpagi@gmail.com
 
 ---
 
